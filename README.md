@@ -16,3 +16,4 @@ python Hawkeye.py🔴
 
 Username: komail🔴
 Password: komail🔴
+FARIYA .. COPY NA KRNA PLZ HHAHA 😍😍
